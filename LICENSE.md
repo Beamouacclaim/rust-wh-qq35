@@ -1,4 +1,4 @@
-
+Rare rust cheats wh is the best rust cheats wh with silent aim and instant kill. Safe, reliable, and optimized for maximum performance.
 
 
 
